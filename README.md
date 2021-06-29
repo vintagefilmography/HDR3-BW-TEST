@@ -1,0 +1,1 @@
+# HDR3-BW-TEST
